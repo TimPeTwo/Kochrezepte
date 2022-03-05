@@ -1,6 +1,6 @@
 # Eierschmalz
 
-##Zutaten
+## Zutaten
 * 1 große Zwiebel
 * 75g geräucherter Speck
 * 4 Scheiben Toastbrot
@@ -10,5 +10,5 @@
 * 1 Msp Salz
 * 1 Msp Pfeffer
 
-##Zubereitung
+## Zubereitung
 ToDo
