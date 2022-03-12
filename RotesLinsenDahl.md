@@ -18,12 +18,12 @@
 * 2 Tl Kokosblütenzucker oder Zucker
 * 2 El Limetten- oder Zitronensaft
 
-##Zubereitung
+## Zubereitung
 * Zwiebeln und Knoblauch im Öl galsig dünsten, Ingwer und Gewürze ( außer Salz ) dazugeben und anschwitzen
 * Linsen waschen
 * Linsen mit der Brühe zu den Zwiebeln geben, 10 Minuten bei schwacher Hitze köcheln, die Linsen werden den größten Teil des Wassers dabei aufnehmen
 * Kokosmilch und Tomaten und Salz dazugeben und weitere 10 Minuten köcheln lassen
 
-##Servieren 
+## Servieren 
 * Mit Joghurt, Petersilie, Röstzwiebeln, Sesam ganieren
 * Reis oder Kartoffelpüre als Beilage
