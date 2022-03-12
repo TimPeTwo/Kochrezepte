@@ -7,7 +7,7 @@
 * 250 g Kassler Rippchen
 * 2 Pinkel-Würste
 * 2 Brühwürste
-* 75 g Hafergrütze ( mit Gertengraupen kklappt es auch )
+* 75 g Hafergrütze ( mit Gerstengraupen klappt es auch )
 * 1 1/2 Tl Salz
 * 1/4 Tl Pfeffer
 * 1 Prise Kardamon
@@ -18,7 +18,7 @@
 * Den zerupften Grünkohl und die Hafergrütze dazugeben und gerade mit heißen Wasser bedeken
 * 1 Stunde köcheln lassen
 * Bauchspeck, Kassler, Salz, Pfeffer, Kardamon dazugeben
-* gegebenenfalls noch etwas Wasser dazugeben, 1 weitere Stunde kochen lassen
+* gegebenenfalls noch etwas Wasser dazugeben, 1 weitere Stunde köcheln lassen
 * Würste dazugebeb, 1/2 Stunden köcheln lassen
 
 ## Servieren

@@ -1,9 +1,9 @@
 # Rotes Linsen Dahl
 ## Zutaten
 * 2 El Öl ( Kokos oder Oliven )
-* 2 Zwiebeln
-* 4 Knoblauchzehen
-* 2 Tl Ingwer
+* 2 Zwiebeln, feingehackt
+* 4 Knoblauchzehen, feingehackt
+* 2 Tl Ingwer, feingehackt
 * 1 Tl Kurkuma
 * 1 Tl Koriander
 * 1 Tl Kreutzkümmel
@@ -19,10 +19,9 @@
 * 2 El Limetten- oder Zitronensaft
 
 ## Zubereitung
-* Zwiebeln fein würfeln, Knoblauch pressen, Ingwer fein hacken/reiben
 * Linsen waschen
 * Zwiebeln und Knoblauch im Öl glasig dünsten, Ingwer und Gewürze ( außer Salz ) dazugeben und anschwitzen
-* Linsen mit der Brühe zu den Zwiebeln geben, 10 Minuten bei schwacher Hitze köcheln, die Linsen werden den größten Teil des Wassers dabei aufnehmen
+* Linsen waschen und anschließen mit der Brühe zu den Zwiebeln geben, 10 Minuten bei schwacher Hitze köcheln. Die Linsen werden dabei den größten Teil des Wassers aufnehmen.
 * Kokosmilch und Tomaten und Salz dazugeben und weitere 10 Minuten köcheln lassen
 
 ## Servieren 
