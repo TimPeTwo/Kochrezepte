@@ -2,9 +2,9 @@
 Für 4 Personen
 ## Zutaten
 * 1 Zwiebel, feingehakt
-* 1 Kolauchzehe, feingehakt
-* 75 g durchwachsener Speck, gewürfelt
-* 400 g Rinderhackfleisch
+* 1 Knoblauchzehe, feingehakt
+* 100 g durchwachsener Speck, gewürfelt
+* 500 g Rinderhackfleisch
 * 1 Möhre, feingewürfelt
 * 1 Stange Staudensellerie, feingewürfelt
 * 2 El Butterschmalz
