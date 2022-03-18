@@ -27,3 +27,6 @@
 ## Servieren 
 * Mit Joghurt, Petersilie, Röstzwiebeln, Sesam ganieren
 * Reis oder Kartoffelpüre als Beilage
+
+## Ausprobieren
+Mit TK Erbsen kombinieren

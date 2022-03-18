@@ -1,12 +1,12 @@
 # Bolognese
 Für 4 Personen
 ## Zutaten
-* 1 Zwiebel, feingehakt
+* 2 Zwiebel, feingehakt
 * 1 Knoblauchzehe, feingehakt
 * 100 g durchwachsener Speck, gewürfelt
 * 500 g Rinderhackfleisch
-* 1 Möhre, feingewürfelt
-* 1 Stange Staudensellerie, feingewürfelt
+* 2 Möhre, feingewürfelt
+* 2 Stange Staudensellerie, feingewürfelt
 * 2 El Butterschmalz
 * 100 ml Rotwein
 * 100 ml Milch oder Sahne
