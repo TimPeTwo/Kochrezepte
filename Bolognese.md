@@ -11,7 +11,8 @@ Für 4 Personen
 * 100 ml Rotwein
 * 100 ml Milch oder Sahne
 * 400 g passierte oder stückige Tomaten aus der Dose
-* 3 El Tomatenmarl
+* 3 El Tomatenmark
+* 1 Tl Baharat
 * 1 Tl Oregano
 * 1 1/2 Tl Salz
 * 1 Tl Zucker
@@ -27,3 +28,6 @@ Für 4 Personen
  * Milch dazugeben und einkochen lassen
  * Oregano, Zucker und Tomaten und Tomatenmark einrühren
  * 30 Minuten sanft köcheln lassen
+
+### Optional
+Statt Speck und Hackfleisch kann auch 500g Salcicia verendet werden. Dann etwas weniger Salz nehmen.
