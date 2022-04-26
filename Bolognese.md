@@ -30,4 +30,4 @@ Für 4 Personen
  * 30 Minuten sanft köcheln lassen
 
 ### Optional
-Statt Speck und Hackfleisch kann auch 500g Salcicia verendet werden. Dann etwas weniger Salz nehmen.
+Statt Speck und Hackfleisch kann auch 500g Salsiccia verwendet werden. Dann etwas weniger Salz nehmen.
