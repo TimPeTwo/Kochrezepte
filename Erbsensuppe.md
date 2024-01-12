@@ -7,12 +7,11 @@
 * 1 Bund Suppengrün ( Möhren, Lauch, Sellerie ), klein geschnitten
 * 1 1/2 Liter Gemüsebrühe ( 2 Tl Pulver )
 * 350 g Erbsen
-* 1 Msp Zucker
 * 1 Lorbeerblatt
-* 1 Tl Majoran
+* 1/2 Tl Majoran
 * 1 Tl Bohnenkraut
 * 2 Tl Salz
-* 1/2 Tl Pfeffer
+* 1/8 Tl Pfeffer
 * 4 Bockwürste
 
 ## Zubereitung

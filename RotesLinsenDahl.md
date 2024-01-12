@@ -9,7 +9,7 @@
 * 1 Tl Garam Masala oder anderes Curry
 * 1/2 Tl Pfeffer
 * 2 Zwiebeln, feingehackt
-* 4 Knoblauchzehen, feingehackt
+* 1 Knoblauchzehen, feingehackt
 * 500 g rote Linsen
 * 1000 ml Gemüsebrühe bzw. heißes Wasser mit 1 Tl Gemüsebrühe 
 * 500 ml Kokosnussmilch
