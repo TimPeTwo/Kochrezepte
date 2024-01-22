@@ -9,7 +9,6 @@ Für 4 Personen
 * 2 Stange Staudensellerie, feingewürfelt
 * 2 El Butterschmalz
 * 100 ml Rotwein
-* 100 ml Milch oder Sahne
 * 400 g passierte oder stückige Tomaten aus der Dose
 * 3 El Tomatenmark
 * 1 Tl Baharat
@@ -24,9 +23,7 @@ Für 4 Personen
  * Möhren und Staudensellerie dazugeben und andünsten
  * Hackfleisch dazugeben. Das Hackfleisch beim andünsten ständig mit einen Löffel zerdrücken, damit keine großen Klumpen übrig bleiben. Solange zerdrücken bis alles Fleisch die rote Farbe verloren hat.
  * Rotwein zugießen und einkochen lassen
- * Salz und Pfeffer dazugegben
- * Milch dazugeben und einkochen lassen
- * Oregano, Zucker und Tomaten und Tomatenmark einrühren
+ * Salz, Pfeffer, Oregano, Zucker, Tomaten und Tomatenmark einrühren
  * 30 Minuten sanft köcheln lassen
 
 ### Optional
