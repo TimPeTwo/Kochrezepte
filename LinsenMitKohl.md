@@ -28,7 +28,7 @@
 * Rote Linsen dazugeben
 * Kokosmilch zugeben
 * 8 Minuten köcheln lassen
-* Mit Petersilie serviern
+* Mit Petersilie servieren
 
 ## Link
 [Linsen mit Kohl sind besser als Fleisch!](https://youtu.be/wow3gSFaxl4?si=z5xfHKeVZS5fukfD)
