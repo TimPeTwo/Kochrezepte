@@ -5,15 +5,14 @@
 * 1 große weiße Ziebel
 * 1 Süßkartoffel
 * 1 Knoblauchzehe
+* 200g rote Linsen ( ca. 1 Tasse )
+* 1 Handvoll Petersillie
+* Saft einer halben Zitrone
 * 1 TL Cayennepfeffer ( oder 1 TL Gochujang Paste )
 * 1 TL Kümmel
 * 1 TL Garam Masala ( oder 1 TL Red Curry Paste )
-* ( 1 TL 
 * 2 TL Salz
 * 1 EL Olivenöl
-* 200g rote Linsen ( ca. 1 Tasse )
-* Saft einer halben Zitrone
-* 1 Handvoll Petersillie
 * 2 TL Backpulver
 * 50g Semmelbrösel ( ca. 1/2 Tasse )
 * 2 TL Backpulver
