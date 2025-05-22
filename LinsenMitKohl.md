@@ -4,7 +4,7 @@
 * 1 Tasse rote Linsen
 * 1 Zwiebel
 * 2 Knoblauchzehen ( 1 )
-* ! EL Ingwer
+* 1 EL Ingwer
 * 2 EL Kokosfett
 * 1/2 Spitzkohl
 * 2 TL Salz
