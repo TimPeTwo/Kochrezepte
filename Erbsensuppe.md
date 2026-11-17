@@ -6,10 +6,12 @@
 * 2 Zwiebeln, gehackt
 * 1 Bund Suppengrün ( Möhren, Lauch, Sellerie ), klein geschnitten
 * 1 1/2 Liter Gemüsebrühe ( 2 Tl Pulver )
-* 350 g Erbsen
+* 500 g Erbsen
 * 1 Lorbeerblatt
 * 1/2 Tl Majoran
-* 1 Tl Bohnenkraut
+* ( ? 1 Tl Bohnenkraut ? Vielleicht doch nicht.)
+* 2 EL Senf
+* 1 EL Mehl
 * 2 Tl Salz
 * 1/8 Tl Pfeffer
 * 4 Bockwürste
